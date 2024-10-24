@@ -1,1 +1,1 @@
-# fenghuomail-Free-email-list-deduplication-and-deletion-software-gadget
+# 免费邮箱列表去重删除重复邮箱软件小工具
